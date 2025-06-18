@@ -1,9 +1,3 @@
----
-title: Acto 1
-layout: layout.njk
-order: 1
----
-
 # Rhaelys: Covenant of Ashes
 
 #### Con amor para Nosferatu. 
