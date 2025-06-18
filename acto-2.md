@@ -1,9 +1,3 @@
----
-title: Acto 2
-layout: layout.njk
-order: 2
----
-
 ## Acto II: Entre el Deber 🩸 y el Olvido 🕯️
 
 Nocturnia permanecía imponente contra el cielo del amanecer. La ciudad, siempre un faro de grandeza carmesí, se alzaba intacta. Sus calles resonaban con la vida de sus ciudadanos, todos a salvo bajo la protección que una vez ofrecieron sus murallas, ahora relucientes bajo la luz naciente. La magia protectora aún palpitaba en cada rincón, fuerte y constante. Sin embargo, una sombra de pesar se cernía sobre la celebración silenciosa.
