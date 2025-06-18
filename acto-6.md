@@ -1,9 +1,3 @@
----
-title: Acto 6
-layout: layout.njk
-order: 6
----
-
 ## Acto VI: Cenizas del Vínculo ☢️🌫️
 
 Una semana más tarde…
