@@ -1,9 +1,3 @@
----
-title: Acto 3
-layout: layout.njk
-order: 3
----
-
 ## Acto III: Ecos del Tiempo Detenido ⚡🕳️
 
 El viento no soplaba. Aquella ausencia palpable fue la primera anomalía que asaltó los sentidos de Rhaelys al abrir los ojos. El paisaje que se extendía ante ella era inconfundiblemente Eundegarde, pero al mismo tiempo, era una burda imitación, despojada de su esencia vital.
