@@ -6,7 +6,13 @@
 
 ## Acto I: 🔥Furia Carmesí🔥
 
-Nocturnia, la joya escarlata de los Ferthalas, capital de las Bestias Carmesí, se alzaba como un organismo vivo esculpido en piedra rojiza. Sus torres, imponentes centinelas bañados por el sol, rendían un homenaje perenne al espíritu indómito de su gente. Bajo el manto estrellado, los caminos de obsidiana reflejaban la luz celestial, mientras los ríos carmesí, teñidos por la sangre mineral de la tierra, serpenteaban por el corazón de la metrópoli, insuflando magia y vitalidad a sus habitantes.
+Nocturnia, mejor conocida como la joya escarlata, era la capital de las bestias carmesí, se alzaba imponente y majestuosa en medio de un valle hermoso.
+
+Sus torres eran intimidantes, y ademas muy hermosos cuando eran bañados por la luz del sol, rindiendo un homenaje respetuoso al gran espiritu indomable y persistente de su gente.
+
+Bajo un cielo estrellado, los caminos de obsidiana reflejaban la luz de las estrellas, los rios carmesí eran hermosos a pesar de que el fondo de estos era de color rojizo y se asemejaba a la sangre.
+
+ Bajo el manto estrellado, los caminos de obsidiana reflejaban la luz celestial, mientras los ríos carmesí, teñidos por la sangre mineral de la tierra, serpenteaban por el corazón de la metrópoli, insuflando magia y vitalidad a sus habitantes.
 
 La ciudad palpitaba con una energía constante. En los patios, el choque metálico de los aceros resonaba mientras los guerreros se adiestraban con fervor. En las fraguas, el fuego etéreo danzaba al ritmo de los martillos, dando forma a armas imponentes. Y en las bibliotecas de piedra, los sabios cincelaban nuevos relatos, grabando la historia de su pueblo en tablillas ancestrales.
 
