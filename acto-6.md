@@ -476,3 +476,289 @@ Rhaelys lo abrazó más fuerte.
 Y en el susurro más pequeño, más humano, más herido… “Perdóname Aether...”
 
 La ceniza cayó sin cesar. Y él solo pudo cargarla, esperando que aún pudiera perdonarse él también.
+
+La montaña estaba cerca. Pero el cuerpo de Aether ya no lo sentía como una meta. Solo como un castigo.
+
+La ceniza caía como si la misma atmósfera estuviera en duelo. Paso tras paso, su pie izquierdo arrastraba más que el derecho. La reparación improvisada no bastaba. Sus venas seguían envenenadas. Y Rhaelys… Seguía dormida. Cada vez más liviana. Demasiado liviana.
+
+Sus brazos la sostenían con fuerza, envuelta en el caos protector. Pero cada vez le costaba más sentir su peso. Más frío. Más silencio. Más él… solo.
+
+Y entonces comenzó. El viento.
+
+No era brisa. No era corriente. Era pensamiento. No suyo.
+
+“Llegas tarde.”
+
+Giró la cabeza. No había nadie.
+“Ella ya decidió que moriría aquí. Y tú… solo lo estás prolongando.”
+
+Sacudió la cabeza.
+
+“Cuántos dijiste que protegerías. ¿Y cuántos has visto caer?”
+
+El paso de Aether se volvió errático. Su respiración se quebró. Su visión comenzaba a vibrar. La ceniza quemaba sus ojos, aunque no había calor.
+
+“Cállate…”
+
+“¿Sabes por qué ella dijo ‘perdóname’? Porque tú la obligaste a venir. Porque tú eres el error constante.”
+
+“¡Cállate!”
+
+“Ella está muriendo por seguirte. Como todos.”
+
+Rhaelys murmuró algo. Algo leve. Algo incompleto.
+
+“¿Qué? ¿Rhaelys?” Aether se detuvo, giró levemente la cabeza.
+
+Pero su cuerpo… estaba flojo. Demasiado.
+
+La miró. Su rostro estaba pálido, sus labios entumecidos. Y entonces colapsó por completo.
+
+“¡No… no, no, no! ¡Rhaelys!” Aether cayó de rodillas, sacudiéndola, temblando.
+
+“Está muerta. Por tu culpa. Otra llama que no supiste mantener viva.”
+
+“No… ella… ella solo… ¡ella va a estar bien!”
+
+El caos alrededor de él se agitaba. Sus manos lo envolvían, pero no bastaban. Nada bastaba.
+
+“Deja de mentirte.”
+
+El viento sonrió. Él gritó desesperadamente.
+
+El indicador de vida parpadeaba en rojo. 9%.
+
+La respiración de Rhaelys era tan tenue que Aether apenas podía sentirla bajo sus dedos.
+
+“Rhaelys… por favor, quédate.”
+
+El viento seguía maldiciendo su nombre en silencio. Pero esta vez, Aether no le discutió. Solo corrió.
+
+Entre las grietas heladas del páramo, encontró lo imposible: una estructura curvada, sumergida en piedra, como un antiguo búnker domo. La puerta rechinó, pero cedió. Dentro… no había enemigos. Solo calor sellado. Y espejos.
+
+Cientos de espejos. Suspensos en el aire, girando con lentitud. Y ninguno reflejaba a Aether.
+
+Se dejó caer con ella en brazos, y la recostó con cuidado sobre una superficie cálida.
+
+La acurrucó con todo su cuerpo. Como si pudiera prestarle su vida en cuotas.
+
+Sus lágrimas comenzaron a caer sin anuncio. No gritaba. No temblaba. Solo… estaba roto por dentro.
+
+“…Tenían razón,” murmuró, “el viento tenía razón…”
+
+Fue entonces que uno de los espejos encendió su luz.
+
+La imagen proyectada flotó sobre Rhaelys. Un recuerdo. Uno privado. Íntimo. No del campo de batalla… del hogar.
+
+Ella estaba en una cocina. El hogar onírico, más limpio, más decorado. Rhaelys revolvía frascos, mordía su labio, indecisa.
+
+“¿Qué le gustaría más… lo dulce o lo ácido? ¡Ugh! ¿Por qué nunca pone nombres a las cosas? Podría tatuarse en la frente: ‘Le tengo miedo al azúcar’…”
+
+Movía su cola de zorro con nerviosismo… y felicidad.
+
+Aether se quedó inmóvil.
+
+Otro espejo giró.
+
+En él, su propio cuerpo dormido en un sillón. Rhaelys se acercaba, cubriéndolo con una manta suave. Miraba alrededor, como asegurándose de estar sola. Se inclinó… y le dio un beso en la frente. Sonrojada hasta la punta de las orejas.
+
+Aether se llevó una mano a la boca. Cerró los ojos.
+
+“Yo no… yo no sabía que me mirabas así.” “Yo no sabía que te importaba tanto cuando no ardías.”
+
+Su voz temblaba.
+
+“Perdóname… No merezco esto. No te merezco a ti.” Miró su rostro dormido. “Pero aunque no lo merezca… no voy a dejar que sufras más por mi culpa. Voy a terminar esto. Y si no puedo salvarte con fuego... te salvaré con mi vida. O con lo que me quede de élla.”
+
+Volvió a cargarla en sus brazos. Su cuerpo pesaba poco. Pero sus promesas… ya no cabían en las manos.
+
+El viento no habló esta vez. Porque ni siquiera el frío se atrevía a interrumpir ese momento.
+
+Y Aether… Salió al páramo. Solo con ella. Y lo que ahora ardía en su pecho.
+
+La cima no ofrecía vistas. Solo ceniza.
+
+Aether llegó a la entrada de la montaña cargando a Rhaelys como si cada paso fuera tallado con su propia sangre. El viento no azotaba. No tenía fuerza. Era apenas un aliento sin alma. El final.
+
+Extendió la mano. Invocó un Ojo del Caos. El orbe flotó en círculos, escaneando la cámara vasta y circular al fondo. Sin guardián. Sin amenaza. Solo silencio.
+
+Al centro, un artefacto. No hecho de metal. No hecho de piedra. Algo en medio. Como si estuviera esculpido en la idea del olvido.
+
+Aether avanzó.
+
+“…Ya casi, Rhaelys,” susurró, su voz partida. “Ya casi llegamos. Aguanta un poco más. Solo un poco...”
+
+Sabía que ella no lo escuchaba. Pero también sabía que no podía dejar de hablarle.
+
+Al llegar, la depositó con infinito cuidado sobre la losa central.
+
+El HUD parpadeó.
+
+Estado: Vitalidad crítica (1%). > Respiración: interrumpida.
+
+Aether sintió el hueco completo en su estómago.
+
+“No…”
+
+Sacó lo último de su alquimia. La poción prohibida. Detención de flujo temporal – coste vital proporcional.
+
+La destapó con los dientes. Y la vació entera sobre Rhaelys.
+
+El tiempo alrededor de ella se congeló. Pero su carne no. El dolor para él fue inmediato. Como si su piel se desgarrara desde adentro, como si sus huesos se astillaran con cada segundo prestado.
+
+“Vamos… vamos... quédate...”
+
+Miró al artefacto. Solo un botón negro. Sin símbolo. Sin opción.
+
+Lo presionó.
+
+Su caos rugió. No como respuesta. Como traición.
+
+Las sombras dentro de su cuerpo lo atacaron. Lo rajaron. Lo empujaron. Intentaron detenerlo.
+
+Aether gritó. Pero no soltó el botón.
+
+La Terminal se encendió. Un halo pálido emergió y una voz antigua habló:
+
+“Gracias por traer esperanza a este mundo devastado. > Esta es la Esencia de la Vida. > Si se usa en la lanzadera, puede devolverle el movimiento al mundo estancado.”
+
+Aether lo escuchó. Y lo ignoró.
+
+No por desdén. Sino porque ya sabía qué vida quería devolver.
+
+Rompió el sello de contención. Y vació la esencia sobre el pecho congelado de Rhaelys.
+
+Ella jadeó. Una vez. Lenta. Viva.
+
+El HUD saltó.
+
+Salud: 10%.
+
+Aether soltó el aire que no sabía que contenía. Sus ojos se cerraron un momento. Lo logré. La traje de vuelta.
+
+Desactivó la poción.
+
+Y entonces... lo vio.
+
+Nuevo estado: Coma latente. > Reanimada, pero no despierta. > Riesgo neurológico crítico.
+
+La Terminal emitió un último zumbido. Y en una tormenta de ceniza brillante… la Fractura se cerró.
+
+El portal los devolvió a la entrada.
+
+Rhaelys yacía en el suelo. Ya no temblaba. Ya no ardía. Pero respiraba.
+
+Solo eso.
+
+Aether cayó de rodillas junto a ella. Sus manos la rodeaban. Su caos lo cubría todo. Pero ella no se movía.
+
+No hubo música de victoria. No hubo gloria.
+
+Solo un campo gris. Y la promesa partida de un mundo no salvado.
+
+Aether cayó de rodillas apenas salieron de la Fractura. El portal se cerró detrás con un susurro seco. Pero Rhaelys… Rhaelys seguía sin moverse.
+
+La recostó con cuidado. Tocó su mejilla. Helada.
+
+Miró su piel. Congelación avanzada, vetas azules como venas de muerte extendiéndose por su cuello, sus brazos.
+
+“No… No—no, no, no, no, no…”
+
+No hubo tiempo para pociones. No hubo tiempo para pánico.
+
+Aether desató su caos. No como arma. Como fuego. Fuego verdadero.
+
+Levantó un círculo de protección. Una pira inmensa creció, como una flor oscura en medio de un campo de ceniza. Colocó a Rhaelys en el centro. La abrazó con todo su poder.
+
+La piel de ella se calentó de inmediato. Los tonos rojizos volvieron. Los fragmentos de escarcha se quebraron con un crack agudo. La barra de vida saltó en el HUD: 10% 40% 76% 100%
+
+Y sin embargo…
+
+Ella no abrió los ojos.
+
+Siguió en coma.
+
+Aether cayó de rodillas. Frente a ella. La miró.
+
+Y el peso lo aplastó.
+
+“No sé qué más hacer, Rhaelys… Te traje de vuelta. Te protegí con todo lo que soy… Te salvé. ¡Te salvé! Entonces ¿por qué no vuelves?”
+
+Su voz se quebraba. Su garganta sangraba silencios.
+
+“No me dejes… Tú dijiste que no temías el fuego… Entonces vuelve al mío…”
+
+Se aferró a su cuerpo, temblando con ella, aunque por dentro.
+
+“Perdón por no ser suficiente. Perdón por llevarte ahí. Perdón por no decirte antes lo mucho… que me duele el mundo sin tu voz.”
+
+Pero ella no respondió. Solo descansaba. Inerte.
+
+Y entonces, Aether no dijo más. La cargó en brazos. Y comenzó a caminar.
+
+El desierto no ardía. La ceniza no caía. El mundo no se movía.
+
+Pero él sí. Un paso. Otro. Hacia el horizonte sin sol. Con la única llama que alguna vez importó. Dormida.
+
+Aether buscando en su cinturón saca una llave peculiar
+
+Aether temblaba al sostener la vieja llave.
+
+La había conservado por simple respeto. La “llave del hogar onírico” que Rhaelys le había dado en tiempos más ligeros, para que pudiera entrar cuando quisiera. Una promesa compartida. Un acceso no a un lugar… sino a su mundo.
+
+La sostuvo sobre la puerta dormida. Esta reconoció su toque. Y se abrió.
+
+Dentro, todo seguía igual. La fuente de luz líquida aún fluía en el rincón. Las escaleras flotaban entre columnas 
+
+translúcidas. Y el aire… estaba lleno de fuego ausente.
+
+Aether cruzó el umbral con Rhaelys entre los brazos.
+
+No fue hasta que la acomodó sobre el sillón donde solía leer sus códices, que dejó de contenerse.
+
+Cayó de rodillas a su lado. La tomó de la mano.
+
+Y rompió.
+
+“Por favor…”
+Las palabras apenas salían. El pecho le dolía al respirar.
+
+“Rhaelys. Ya estamos aquí. Ya estás a salvo. Solo… abre los ojos. Solo uno. El que tú elijas. Solo un instante.”
+
+No hubo respuesta.
+
+“Te prometo… no más desiertos, ni montañas, ni tormentas. Solo… quédate. Quédate y discute conmigo. Quédate y grítame. Pero no te vayas…”
+
+Lloró. Lloró de nuevo. Sin pudor. Sin orden.
+
+“Perdóname por no haber sido más fuerte… por no haber protegido tu fuego… por haberte dejado cargar sola durante tanto tiempo…”
+
+Y en ese instante…
+
+Una voz humana llenó el aire.
+
+No en eco. No en memoria. En presente.
+
+“No todos los guardianes son maldad. > Algunos somos condena… por amor.”
+
+Aether se incorporó de golpe.
+
+La voz venía de ningún lugar específico. Y de todas partes a la vez. Firme, pausada. Con esa resonancia que él recordaba entre cenizas.
+
+“Gracias por liberarme de ese lugar, Aether. Fue mi descanso. Pero ahora… puede que sea ella quien necesite ese privilegio.”
+
+El aire brilló. Una figura tenue, semitransparente, sin detalles, pero con la voz exacta de Maerel, se alzó sobre el umbral interior del hogar.
+
+“No todos los cuerpos quieren volver. > Pero hay corazones… que se quedan dormidos solo para escuchar lo que nunca se les dijo.”
+
+Aether dio un paso adelante. “¿Puedo salvarla?” Su voz era un susurro dolido.
+
+ “No es cuestión de poder, es cuestión de hacer lo que sea necesario por ella.”
+
+La figura de Maerel se desvaneció.
+
+“Te ayudaré. yo te guiare al lugar donde debes convencerla de vivir… El dominio Hollow.”
+
+Y entonces. Aether abrio el HUD, percatadose de que el dominio hollow era la fractura 18…
+
+Y él tomaría la decisión de explorar ese sitio el solo...
