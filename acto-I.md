@@ -4,7 +4,7 @@
 
 #### Historia creada por DarkMagicalRaven
 
-## Acto I: 🔥Furia Carmesí🔥
+## Acto I: Furia Carmesí
 
 Nocturnia, mejor conocida como la joya escarlata, era la capital de las bestias carmesí, se alzaba imponente y majestuosa en medio de un valle hermoso.
 
@@ -14,31 +14,47 @@ Bajo un cielo estrellado, los caminos de obsidiana reflejaban la luz de las estr
 
  Bajo el manto estrellado, los caminos de obsidiana reflejaban la luz celestial, mientras los ríos carmesí, teñidos por la sangre mineral de la tierra, serpenteaban por el corazón de la metrópoli, insuflando magia y vitalidad a sus habitantes.
 
-La ciudad palpitaba con una energía constante. En los patios, el choque metálico de los aceros resonaba mientras los guerreros se adiestraban con fervor. En las fraguas, el fuego etéreo danzaba al ritmo de los martillos, dando forma a armas imponentes. Y en las bibliotecas de piedra, los sabios cincelaban nuevos relatos, grabando la historia de su pueblo en tablillas ancestrales.
+La ciudad estaba viva, llena de lugares para pasar el rato, ademas de que habian muchos lugares donde se adoctrinaban a los guerreros
 
-Sin embargo, bajo la vibrante superficie de Nocturnia, una sombra de inquietud se extendía. La guerra contra las Bestias del Umbral se cernía como una tormenta inminente. A pesar de la fachada de fortaleza que mostraban los ciudadanos, una verdad tácita resonaba en sus corazones: su única esperanza personificada se erguía en el centro de la ciudad.
+En los campos de entrenamiento, el choque metálico de los aceros resonaba mientras los guerreros se adiestraban con fervor bajo un lema "Los debiles mueren bajo su propia mediocridad". 
 
-En el gran salón de guerra, epicentro estratégico de la capital, Rhaelys se alzaba sobre una plataforma de piedra elevada, su mirada dominando el vasto panorama. Pequeña en estatura, pero inmensa en poder, su figura parecía diminuta en contraste con la magnitud carmesí que la rodeaba.
+En las fraguas, el fuego etéreo danzaba al ritmo de los martillos, dando forma a armas imponentes. Y en las bibliotecas de piedra, los sabios cincelaban nuevos relatos en tablillas de obsidiana, grabando la historia de su pueblo.
 
-En la gran ciudad Nocturnia, no había quien no hablara de la hermosura de Rhaelys. Su sola presencia bastaba para silenciar conversaciones y acelerar corazones. Era codiciada por la mayoría de la gente de su raza. Aunque pocos se atrevían a acercarse.
+Ahi, bajo la vibrante superficie de Nocturnia, una sombra de inquietud se extendía. 
 
-No obstante, la energía que irradiaba de su presencia llenaba cualquier lugar, subyugando cada rincón con una autoridad silenciosa.
+La guerra contra las Bestias del Umbral acechaba como una tormenta. A pesar de la fachada de fortaleza que mostraban los ciudadanos, una verdad imposible de ignorar resonaba en sus corazones: su única esperanza se erguía sobre una torre en el centro de la ciudad.
 
-Su apariencia juvenil podía engañar a los incautos, pero aquellos curtidos por el tiempo conocían la verdad: ella era una guardiana ancestral, de edad inescrutable, un pilar fundamental en la historia de los Ferthalas, más antigua que los propios muros que protegían la ciudad. Su llegada se había perdido en las brumas del tiempo, y las generaciones habían pasado bajo su égida, su nombre resonando como una leyenda eterna.
+En el gran salón de guerra, epicentro estratégico de la capital, Rhaelys, la gran maga suprema, se alzaba sobre una plataforma de piedra elevada.
 
-Sus ojos dorados, pozos profundos e insondables, recorrían los edificios con una mezcla compleja de orgullo y cansancio. ¿Cuánto tiempo había custodiado estas tierras? ¿Cuántas veces había presenciado a los Ferthalas prepararse para la guerra, en un ciclo interminable de conflicto? Su mente, habitualmente serena y silenciosa, ocultaba una duda latente, una pregunta que rara vez se permitía ascender a la superficie: ¿Hasta cuándo?
+Su mirada dominaba el vasto panorama. Pequeña en estatura, pero inmensa en poder, su figura parecía diminuta en contraste con la ciudad que la rodeaba.
 
-Su traje de batalla canalizador, una extensión de su propia alma, se ajustaba a su cuerpo con una precisión asombrosa. Tejido con la llama ancestral de su alma, el conjunto poseía una funcionalidad singular: un puente entre su fuerza física y su poder arcano, permitiéndole amplificar su magia sin necesidad de artefactos externos.
+En la gran ciudad, no había quien no hablara de la hermosura de Rhaelys. Su sola presencia bastaba para silenciar conversaciones y acelerar corazones. Era codiciada por la mayoría de la gente de su raza. Aunque pocos se atrevían a acercarse, la energía que irradiaba de su presencia llenaba cualquier lugar, dominando cada rincón con una autoridad silenciosa.
 
-El torso, protegido por ligeras placas de un material carmesí oscuro, ofrecía libertad de movimiento. Símbolos de runas antiguas brillaban tenuemente en los bordes del tejido, activándose con el despertar de su poder.
+Su apariencia juvenil podía engañar a los incautos, pero aquellos curtidos por el tiempo conocían la verdad: ella era una guardiana ancestral, de edad incalculable
 
-Los guantes, diseñados para resistir el impacto de sus golpes, estaban envueltos en una energía latente que absorbía el flujo mágico y lo liberaba en devastadoras ondas de choque con cada puñetazo.
+Un pilar fundamental en la historia de los Ferthalas, más antigua que los propios muros que protegían la ciudad. 
 
-Las botas, ligeras pero firmes, le permitían moverse con una velocidad sobrehumana, canalizando su aura directamente al suelo para generar destellos de energía con cada impulso.
+Su llegada se había perdido en el paso del tiempo, y las generaciones habían pasado bajo su égida, su nombre resonando como una leyenda eterna.
 
-Pero ese hermoso e imponente conjunto no existe, ya que es fruto de las llamas solidificadas de su alma.
+Sus ojos dorados, pozos profundos e infinitos, recorrían los edificios con una mezcla compleja de orgullo y cansancio. ¿Cuánto tiempo había custodiado estas tierras? ¿Cuántas veces había presenciado a los Ferthalas prepararse para la guerra, en un ciclo interminable de conflicto?  ¿Cuanto sufrimiento habia pasado esta gran nación?
 
-En el centro de su pecho, latiendo como un segundo corazón, residía el Fragmento de Efigie, un accesorio único vinculado a su alma, respondiendo a sus emociones. Cuando su voluntad se fortalecía, el fragmento irradiaba un resplandor carmesí intenso.
+Su mente, habitualmente serena y silenciosa, ocultaba una duda existencial, una pregunta que rara vez se permitía ascender a la superficie: ¿Hasta cuándo?
+
+Su traje de batalla canalizador, una extensión de su propia alma, se ajustaba a su cuerpo con una precisión asombrosa. 
+
+Tejido con las llamas de su alma, el conjunto poseía una funcionalidad singular: un puente entre su fuerza física y su poder, permitiéndole amplificar su magia sin necesidad de artefactos externos.
+
+El torso, protegido por ligeras placas de un material carmesí oscuro, ofrecía libertad de movimiento. Símbolos de runas antiguas brillaban tenuemente en los bordes, activándose con el despertar de su poder.
+
+Los guanteletes, diseñados para resistir el impacto de sus golpes, estaban envueltos en su energía, que absorbía su flujo mágico y lo liberaba en devastadoras ondas de choque llameantes con cada puñetazo.
+
+Las botas, ligeras pero firmes, le permitían moverse con una velocidad sobrehumana, canalizando su poder directamente al suelo para generar destellos de energía con cada impulso.
+
+Pero ese hermoso e imponente conjunto no existe, ya que es fruto de su tecnica para manipular las llamas de su alma.
+
+En el centro de su pecho, latiendo como un segundo corazón, residía un Fragmento de Efigie, un accesorio único vinculado a su alma, respondiendo a sus emociones. 
+
+Cuando su voluntad de pelear se fortalecía, el fragmento irradiaba un resplandor carmesí intenso dandole un aura aun mas intimidante.
 
 Ella no portaba armas. No las necesitaba. Su cuerpo era el arma definitiva, y con cada golpe, cada movimiento, demostraba ser una paradoja viviente: una maga suprema que luchaba con sus propias manos.
 
