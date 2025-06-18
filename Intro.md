@@ -1,8 +1,3 @@
----
-title: Covenant of ashes
-layout: layout.njk
----
-
 # Rhaelys: Covenant of ashes
 
 Bienvenidos a mi novela. Selecciona un acto para comenzar.
