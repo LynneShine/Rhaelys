@@ -1,9 +1,3 @@
----
-title: Acto 5
-layout: layout.njk
-order: 5
----
-
 ## Acto V: Éter del Ayer 🌄🦂
 
 Tres meses después, el sonido de explosiones resonó en un campo de entrenamiento improvisado, una mezcla de llamas y caos que iluminaba el horizonte. La evolución de Rhaelys y Aether era evidente. Lo que antes eran ataques dispersos e improvisados, ahora era una danza perfectamente sincronizada.
