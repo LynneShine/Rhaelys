@@ -1,9 +1,3 @@
----
-title: Acto 4
-layout: layout.njk
-order: 4
----
-
 ## Acto IV: El Velo Carmesí 🔴
 
 Aether despertó con el peso de varios libros en su regazo, la luz matinal filtrándose por la ventana del hogar onírico de Rhaelys. Parpadeó lentamente, sintiendo el calor suave de la habitación envolviéndolo, y el aroma de algo delicioso lo sacó por completo del sueño.
