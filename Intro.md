@@ -1,6 +1,6 @@
 # Rhaelys: Covenant of ashes
 
-Bienvenidos a mi novela. Selecciona un acto para comenzar.
+Bienvenidos a mi novela.
 
 Esta obra no esta pensada para menores de 18 años y contiene: Contenido explícito, Lenguaje adulto, Violencia, Temas sensibles, Contenido sexual, Violencia gráfica, Drogas, Gore y Desnudez.
 
